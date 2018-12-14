@@ -8,7 +8,7 @@ This is an amazingly tasty lasagna!
 * 2 Tbsp olive oil
 * 1 large onion,(Optionally: 2 Carrots and 2 Celery) finely chopped
 * 3 lbs (1.5 kilo) minced (ground) beef
-4 cloves of garlic, finely chopped or crushed
+6 cloves of garlic, finely chopped or crushed
 1 can (400 g) quality chopped plum tomatoes
 10-15 basil leaves, chopped or torn (or 1 tsp dried basil)
 1/2 tsp dried oregano
